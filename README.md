@@ -11,7 +11,7 @@ In this series, we’ll go over creating real software with AI — and I’ll te
 📥 Learn how to easily download a GitHub repository in just 2 minutes with this guide: [https://youtu.be/m0wi6zf21FU](https://youtu.be/m0wi6zf21FU)
 
 ## 📝 Lessons
-
+I have something for all of ypou for all of us, welcome to heartbreak killer!!
 All lessons are available on YouTube. 
 > 👍 **Like & Subscribe:** It’s free! 🤠
 
